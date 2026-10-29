@@ -1,6 +1,6 @@
 # Hâlâ Çalıyor
 
-Dönme bu saçlarımı bir de nasıl çalmış biliyor musunuz. Çalmış. Direktman, kelimenin tam anlamıyla.
+Dönme [bu saçlarımı](https://donme-blog.github.io/_fedakar./#saclarim) bir de nasıl çalmış biliyor musunuz. Çalmış. Direktman, kelimenin tam anlamıyla.
 
 Sandığımda dururdu. Bir önceki gidişimde - 2018'de oradaydı. Bakmış görmüştüm. Bu gidişimde (2025'de) alacaktım saçlarımı. Artık kendi evimi almışım. Güvenli, benim yerim var (çok şükür) oradan oraya taşınmak zorunda değilim. Saçlarımdan saç takısı, peruk vs yaptıracağım. 
 Saçlar benim. Evime alıyım getiriyim hele.
