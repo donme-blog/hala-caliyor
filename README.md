@@ -1,4 +1,4 @@
-# Hala Caliyor
+# Hâlâ Çalıyor
 
 Dönme bu saçlarımı bir de nasıl çalmış biliyor musunuz. Çalmış. Direktman, kelimenin tam anlamıyla.
 
